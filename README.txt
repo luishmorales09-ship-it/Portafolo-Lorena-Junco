@@ -1,0 +1,1 @@
+Public portfolio. Extract all files together. PDF copies contain redactions or selected pages; full originals are not included. Review all public copies before uploading.
